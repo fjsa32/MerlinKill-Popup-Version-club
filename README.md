@@ -1,4 +1,2 @@
 # virus-400
-lol
-
-is usb
+https://www.youtube.com/watch?v=MV-cfOgapxU by MyKirbyVL2016
